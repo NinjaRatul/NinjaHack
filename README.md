@@ -1,0 +1,2 @@
+# NinjaHack
+Most powerfull hack
